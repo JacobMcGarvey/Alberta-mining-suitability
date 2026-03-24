@@ -1,0 +1,1 @@
+# Alberta-mining-suitability
